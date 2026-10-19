@@ -1,0 +1,2 @@
+# premium-steel-drum-001-steel-pan-note-area-layout-pla
+Tired of losing track of which note is where on your steel pan? The Steel Pan Note Area Layout Planner transforms the chaos of note positions and practice space into a clear, structured system.  This Notion template solves the common problem of disorganized note layouts and scattered practice plans. It provides a dedicated space to map out your pan
